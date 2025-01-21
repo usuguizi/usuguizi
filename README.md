@@ -50,7 +50,7 @@ Outside the tech world, I enjoy exploring **sports**, **traveling**, **cooking**
 ---
 
 ## 📫 How to Reach Me  
-- 💼 **LinkedIn**: [Connect with me!](in/usman-naveed-it) 
+- 💼 **LinkedIn**: https://www.linkedin.com/in/usman-naveed-it
 
 ---
 
