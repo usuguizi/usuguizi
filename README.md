@@ -21,8 +21,8 @@ My long-term career goal is to become a **RSSI (Chief Information Security Offic
 ## 🌍 Languages
 
 - French: Fluent  
-- English: C1  
-- Spanish: B1  
+- English: B2-C1
+- Spanish: A2 
 - Urdu: Fluent  
 - Punjabi: Fluent  
 
